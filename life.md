@@ -1,4 +1,4 @@
-@oschettlers' life
+@oschettler's life
 ===============
 
 - 19/07/1963 geboren in Hamburg
